@@ -1,4 +1,21 @@
+
 # Rethinking_tracking
+
+#New videos
+
+
+
+
+https://github.com/user-attachments/assets/b8d04d0c-6f48-4136-8b90-e44b03857327
+
+
+
+https://github.com/user-attachments/assets/2e6e4d95-4dd7-4929-a88f-d6b64cde7cfa
+
+
+
+https://github.com/user-attachments/assets/faece066-04d2-41eb-b94d-fe34f689253d
+
 
 
 
